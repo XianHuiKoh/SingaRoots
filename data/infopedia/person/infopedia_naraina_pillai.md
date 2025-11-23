@@ -1,0 +1,13 @@
+# Naraina Pillai
+Naraina (Narayana) Pillai (Pillay) first came to Singapore in May 1819 together with Stamford Raffles. Attracted by Raffles's persuasive ideals of Singapore, Pillai left Penang, Malaysia only to find he had to start from scratch. Pillai began as chief clerk at the treasury, or shroff, where he checked coins for authenticity. When the Resident's shroff arrived from Malacca, Pillai was discharged. Despite this, Pillai eventually became the first building contractor in Singapore. He is credited with the construction of Sri Mariamman Temple at South Bridge Road.
+
+## Major accomplishments
+Noting the quick rate at which houses were being built, Pillai started a brick kiln by Mount Erskine (now Tanjong Pagar). He wrote to his friends in Penang for bricklayers, carpenters and cloth merchants. He thus started Singapore’s first brick company and became the first Indian building contractor in Singapore.
+
+Pillai also sold cotton goods at Cross Street. With the arrival of British merchants who allowed him to hold large amounts of cloth on credit, his bazaar became the largest and best-known in Singapore. However, in 1822, his bazaar was burnt to the ground in a fire that razed the area. He persuaded the British merchants to let him repay them in five years. All but John Morgan agreed. Still, within two years, Pillai was able to repay Morgan the $2,000 he owed.
+
+## Social contributions
+Pillai sought Raffles’s help upon latter's return to Singapore, reminding him that it was he who had persuaded Pillai to come to Singapore. In response, Raffles provided him with prime land in the city centre at Commercial Square (present-day Raffles Place). Pillai built his new godown here and started his business afresh. Despite being impoverished, Pillai had a vision to build a Hindu temple, and paid some monies for the land. The original site for the temple was at Telok Ayer Street but it did not have the necessary fresh water required for rituals. A temporary spot by Stamford Canal was given in 1821 before the South Bridge Road site was confirmed in 1823. This temple is the Sri Mariamman Temple, which has been gazetted as a National Monument. Pillai also had a similar vision to set up a Hindu Institute to educate Indian boys.
+
+## Honours
+Pillai gained recognition as a leader among the Indians. He was appointed chief of Indians from Cholamandalaman, and was given the authority to settle disputes among the Tamils.

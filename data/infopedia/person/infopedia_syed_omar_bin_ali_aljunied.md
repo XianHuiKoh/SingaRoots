@@ -1,0 +1,32 @@
+# Syed Omar Aljunied
+Syed Omar bin Ali Aljunied (b. 1792, Hadhramaut, Yemen–d. 6 November 1852, Singapore) was a wealthy merchant and philanthropist who came to Singapore shortly after Stamford Raffles set up a trading post on the island in 1819. He contributed to the development of early Singapore with his philanthropy such as the building of mosques. These include the Masjid Omar Kampong Meleka, which still stands today.
+
+## Early life
+The Aljunied family were established traders in Palembang before setting up their base in Singapore. They hailed from Hadhramaut in Yemen (Middle East), the origin of many Arab traders who came to the Netherlands East Indies (today’s Indonesia) to trade. By 1750, some of them had also started to settle in the region and the establishment of a Hadhramaut colony in Palembang dates to around this period. The opening of Singapore in 1819 brought Arab commerce to the port, much to Raffles’s pleasure. In his plan for Singapore Town, he instructed for a part of the town to be carved out for the Arab community, which became known as the “Arab Campong”.
+
+Palembang (in Sumatra) was one of the early centres of Malay Archipelago interisland trade which would later be emulated by Singapore. The patriarchs of the Aljunieds in Singapore, Syed Mohammed bin Harun (Haroon) Aljunied (d. 22 February 1824, Singapore–d. unknown) and Syed Omar, first landed in Palembang and established their business in the Netherlands East Indies as did many other Hadhramis before they migrated to Singapore, Penang and other Malay states in the 18th and 19th centuries. Courted by Singapore’s free port, Syed Mohammed and Syed Omar shifted their base to the island by 1820/21 and were among the earliest to arrive. When Syed Mohammed died on 22 February 1824, he was said to have left behind “considerable property”. Syed Omar carried on the family business likely because Syed Mohammed’s son, Syed Ali (d. 9 December 1858, Singapore), was only a boy when his father died.
+
+## Wealthy merchant
+While little is known about his uncle Syed Mohammed’s property, the Aljunied estate under Syed Omar’s management was very extensive. An indication of its size and value was given in newspaper reports in 1881 which covered the lengthy sale of Syed Omar’s estate. Taking up at least nine auction sales, the total proceeds from the sales was more than $875,000. While the sales did not include Syed Omar’s sprawling old family residence on High Street, it was estimated that if it had been part of the property auctions, the total proceeds would have probably reached a million dollars.
+
+Before starting his business in Singapore, Syed Omar traded in Penang where Arab merchants had formed an elite community. By the mid-19th century, Syed Omar had become the “principal Arab merchant” in Singapore. That Syed Omar was held in high regard could be gleaned from his 1851 appointment as one of only two Asian members (the other was Tan Kim Seng) to work with leading European merchants to represent the Straits Settlements in an all-empire industrial exhibition held in London in 1852. During his long residence in Singapore, Syed Omar established a wide and lucrative trade network that included Siam (Thailand), Madras (Chennai) and Bombay (Mumbai).
+
+## Philanthropy
+With his wealth, Syed Omar contributed to the welfare of the growing colony. He donated land and built a mosque on Omar Road in Kampong Malacca, which was up kept by rent collected from the surrounding lands owned by the mosque. Placing the property as a wakaf (public property), the mosque, known as Masjid Omar Kampong Melaka and still standing today, has been open to anyone for prayers since its establishment. Upon his death, Syed Omar handed the trusteeship of the mosque and lands to his sons. The Muslim community in Singapore also benefitted from another mosque through Syed Omar’s charity. This is the Benggali Mosque on Bencoolen Street, probably built between 1825 and 1828, which served the small community in Kampong Bencoolen who followed Raffles from Bencoolen to Singapore. Originally an attap structure, it was upgraded to a more solid building by Syed Omar around 1845.
+
+Another gift from Syed Omar to the Muslims in Singapore is the burial ground on Victoria Street, which is now closed. In 1998, it was earmarked for redevelopment by the Urban Redevelopment Authority. Before his death in November 1852, Syed Omar had willed that the large plot of land between Victoria Street and Rochor Canal to be a wakaf for Muslim burials. Syed Omar was laid to rest at the cemetery and it was subsequently referred to as the “Syed Omar burial ground”. In 1927, the Aljunieds started a religious school on Victoria Street near the cemetery. Known today as Madrasah Aljunied Al-Islamiah, boys enrol to study the Arabic language and the Quran. The founder of the school, Syed Abdul Rahman bin Junied Aljunied, was Syed Omar’s grandson and a justice of the peace.
+
+## Omar Road
+In recognition of Syed Omar’s role in Singapore’s early development, Omar Road (now expunged) was named after him.
+
+## Family residence
+Syed Omar made his home in the heart of town. The ground “extends along North Bridge Road from North Boat Quay to High Street, close to Elgin Bridge”, covering almost an acre. The residence was the scene of a murder attempt on Syed Omar in 1823. The plotter, Syed Yassin, was a Pahang trader who had been sent to jail by then British Resident William Farquhar for not settling his debts with Syed Omar. Syed Omar escaped unscathed but the violent scuffle that occurred resulted in Farquhar being stabbed by Yassin, who was subsequently killed.
+
+Syed Omar treasured the High Street property and instructed in his will that the house should remain within the family forever. However, the Aljunied family residence was put up for sale in 1919 for over a million dollars.
+
+## Family
+Wife: Sherifa Alweeah.
+
+Sons: Syed Abdullah (d. May 1865, Arabia); Syed Abu Bakar, who was a founding member of the Singapore International Chamber of Commerce and the only non-European on the board of governors of the Singapore Harbour Board, the precursor to the present Port of Singapore Authority; Syed Haroon (d. February 1860); Syed Junied (d. 29 November 1891); and Syed Ali.
+
+Daughters: Zena, Sherifa Fatimah and Khatijah.
